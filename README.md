@@ -1,7 +1,7 @@
 # 💫 Hi 👋, I'm Srijan k Patgar
 **A passionate Engineer  || from India**
 
-Email Me 👉 ✉️ **alamimran613@live.com** For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ **patgarsrijan@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 - 🔭 **I’m currently working on:** building trading app for common people
 - 🌱 **I’m currently learning:** Machine Learning
